@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **sushmit.pathare@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1DbAdN56zWWcO1ANXtWNwaiPhoDrqsBpi/view?usp=drive_link]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1ntahZ8C-hMn0dbvRUaojCPivUHqToQF1/view?usp=drive_link]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
